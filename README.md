@@ -2,10 +2,10 @@
 
 # Anthony A Aubrey
 
-![](photo.jpg)
+![](anthony.jpg)
 
 Anthony A Aubrey is a designer, artist, and musician. He strives to create material
-that influences and inspires. 
+that influences and inspires.
 
 - **[anthonyaubrey245@gmail.com](mailto:anthonyaubrey245@gmail.com)**
 - [Instagram](https://www.instagram.com/tonyaubrey/?hl=en)
